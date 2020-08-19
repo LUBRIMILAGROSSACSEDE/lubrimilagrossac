@@ -133,5 +133,5 @@ Migracion Jira-Issues(Gitlab): [Guía](https://docs.google.com/document/d/156wEG
 ## FacturaloPeru
 
 [facturaloperu.com](http://facturaloperu.com "Clic")<br>
-soporte@facturaloperu.com<br>
-wsapp: 930 973 902<br>
+miguelhjj1991@gmail.com<br>
+wsapp: 929302935<br>
